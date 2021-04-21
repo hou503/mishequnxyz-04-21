@@ -1,0 +1,19 @@
+
+---
+title: Half-time 14 points, the cannons will start again! Not afraid of clippers super substitutes, wizards lose only 1 point in half-time
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+After the Clippers lost to the bucks in a big score, they continued their journey to Washington to challenge the Wizards. The strength of the Wizards is not strong enough, which gives the Clippers the best chance to rebound, but the wizards are barefoot and not afraid to wear shoes, and never wait to die. In the previous game against the 76ers, the Wizards pulled the eastern giants to the horse. Wizards rely on attack to maintain the lifeline, once they open in the offensive end is very threatening.
+![Half-time 14 points, the cannons will start again! Not afraid of clippers super substitutes, wizards lose only 1 point in half-time](3adcdf65dc714b5493ff03c10b9bf9ca.jpg)
+Bertans against the 76ers
+Although the Wizards only have Bradley bill as a star player, rookie eight Murakami and substitute scoring maniac bertins have all performed well. In particular, this season's trading bertans, but also the team accidentally picked up a piece of treasure. When bertins played for the Spurs last season, his outside shooting was better. When the Wizards got more opportunities, bertins played better and better.
+Beltans is called "the human cannon" by the fans. His outside shooting is very accurate. This high-altitude battery has a steady stream of firepower in the outside. The wizards were able to beat the 76ers, and beltans played a key role in 13-7 3-pointers, allowing the 76ers' defensive formation to be completely broken up. Outside shooting is bertans's main scoring tool, averaging 14.4 points in the season, and he can hit 3.7 three-point goals in each game.
+![Half-time 14 points, the cannons will start again! Not afraid of clippers super substitutes, wizards lose only 1 point in half-time](b3a4c1d35fd14b69887a58e3591f48fe.jpg)
+He was Popovich's lover
+Against the clippers, beltans played three minutes in the first quarter, hitting three-point goals with only one shot and scoring three points in the first quarter. As a rotation player, the second quarter was his main battlefield, and bertans' performance was not disappointing. In the second quarter, the game continued to be successful outside the three-point line. The clippers were quite passive in his defense and even fouled when he shot outside the line.
+"He's the best pitcher I've ever seen," he was praised by hachimura, whose elite shooting skills made the Clippers taste great. It's hard for the Clippers to defend against this antiaircraft gun, and bertans' strong shot is hard to be interrupted because of his height advantage. In the first half of the game, beltans played 10 minutes of the game, 4 of 7 shots (including 3 of 6 three-point shots), 3 of 3 free throws, contributing the team's highest 14 points.
+![Half-time 14 points, the cannons will start again! Not afraid of clippers super substitutes, wizards lose only 1 point in half-time](505448d1f6a24ab6b8ae0394cefa6c73.jpg)
+Harrell and Ludwig
+As we all know, the backup team of the clippers is very fierce in attack. With two bench bandits, the clippers can always smash half of the opponent's position in the rotation phase. However, the backup players of the wizards are not inferior. In this game, the Wizards rely on the excellent performance of the backup team to recover the disadvantage. The positive and negative value of bertans half-time game is as high as + 12. The wizards are also due to the advantage of the reserve team, only one point behind the Clippers in half-time.
+(Wen / Yan Wuqiang)

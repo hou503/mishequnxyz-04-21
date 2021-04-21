@@ -1,0 +1,27 @@
+
+---
+title: Meet Zhan Huang and collapse Mr. 30 million, only 1 undercover don't advise! Break through yourself bravely
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The Lakers challenged the Suns, both sides were in a glued state throughout the game, until the last moment of the game, the Lakers handled the key ball better, and took the game victory from Phoenix. However, the Suns performed well enough. The Suns even led by two points three and a half minutes before the end of the game. Unfortunately, they failed to resist the fierce counterattack of the Lakers and lost the game 115-122.
+The reason why the Lakers are difficult to take advantage of the whole game is that they can't defend the Suns' attack to a large extent. The Suns' overall attack has played brilliantly, making the Lakers' defensive formation repeatedly pierced. Even if we count the three-point shot in the last minute of the game, the Suns have 38-for-16 three-point shots. The Lakers did a good job in defense of outside shooting, but the Suns were a bit embarrassed.
+![Meet Zhan Huang and collapse Mr. 30 million, only 1 undercover don't advise! Break through yourself bravely](4d575ce8dd68477db0d96aee7074cce1.jpg)
+The Lakers leave with victory
+The changes of the Suns this season can be described as a new one. The joining of Ritchie Rubio and the maturity of Devon Booker helped the Suns move forward firmly with the partnership of two backcourt players. Monty Williams - well, he was one of the Lakers' goals - has made a difference in the team's transformation since getting the Suns contract. He injected great energy into the Suns, the players paid more attention to the team's victory, and the team established a winning culture.
+For a team that has been at a low point for many years in a row, it is very difficult to establish a winning culture quickly, but the Suns did. It's not a change for one or two, it's a change for the whole team. The Suns introduced players including Ricci Rubio and Aaron Baines during the off-season, which improved the team's hardness and supported the whole team.
+Of course, there are still some changes in the Suns, with the acquisition of Dario Saric in the deal and the renewal of Kelly ubre playing a big role. Ubre was traded from the wizards to the Suns last season. He was stimulated to a great extent. He worked harder and bolder in the game and training. The Suns have given the handsome player a two-year 30 million contract, hoping that he can continue to radiate passion and passion in the team.
+![Meet Zhan Huang and collapse Mr. 30 million, only 1 undercover don't advise! Break through yourself bravely](7d7f35b30e924e35b61d5cc55c40baec.jpg)
+Wubule
+The performance of ubre in the new season is quite good, the score has not declined too much in the case of falling shots, and the attack efficiency has been improved compared with the previous season. Aubrey has a certain impact, playing very hard, can inspire team-mates' morale in the game. However, in the game against the Lakers, ubre was out of control. He shot 0 in 19 minutes and 5 times, and only got 1 point from the free throw.
+The Suns are more interested in playing against the Lakers, and Monty Williams said before the game: "I'm sure the lads are very enthusiastic about this kind of game. They have the best defenders, they have Hall of fame players, they have Championship players This of course also includes Kyrie ubre. In fact, ubre is very excited. He still encourages his teammates to play well before the game starts.
+Who would have thought, but in the game to become the Lakers "undercover.".
+The suns and the Lakers played a big game against each other, and the Suns lacked a player with an average of 16 points per game, which was unimaginable for the offensive side of the team. The Suns scored double for six in the game, with four of the five starters contributing at least 18 points, with only Aubrey handing in one point. It's hard to believe that this happened. So what happened to ubre?
+![Meet Zhan Huang and collapse Mr. 30 million, only 1 undercover don't advise! Break through yourself bravely](4473ef7656e4405c84aeb4c886887935.jpg)
+Inspire teammates before the game
+When we look back on it, we can see that Aubrey often goes wrong against James.
+In addition to this game, Kelly ubre played against James' team, 4-8 in 12 games. Given that Aubrey has only been in the League for five years, and James has ruled the East for eight years, this is a good result. But what's the data of ubre in these 12 games? James averaged 29 points, 10 rebounds and 9.8 assists.
+When Uber played for the wizards, he witnessed James cutting down magic data again and again. At that time, Uber was a rookie player who could only look up to James' performance. Two years ago, the Cavaliers and the Wizards fought again in the regular season, and ubere came off the bench to score the highest 21 points in his career. James gave 57 points, 11 rebounds, 7 assists, 3 steals and 2 blocks in that game.
+"Not at the same level as him (James)," he said with emotion after the game
+It's disappointing that Aubrey has entered the fifth season of the League at the age of 24, when he was playing, but he can't perform well in front of James, 35. Although the game is not a person's game, but players need to set goals for themselves in the process of growth, and strive to achieve. Ubere must break through himself in the game, and even if he doesn't take James as his target, he should also let himself up.
+(Wen / Yan Wuqiang)

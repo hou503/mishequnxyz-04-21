@@ -1,0 +1,25 @@
+
+---
+title: Wave God 22 + 14 dongqiqi injury retreats, lone ranger risks 24 points, who is harder to reverse Heat gives the answer
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The heat lost to the Lakers at home, and 11 consecutive home wins this season were ended by their opponents. Although the referee's report shows that three miscalculations are unfavorable to the heat, the result of the game has not been changed. The heat's regular season schedule will continue. Next, they will go to the road to challenge the lone Rangers. This is a duel between the black horses of the league, or a competition for the new upstarts. The two teams that failed to make the playoffs last season are ranked in the top three of their respective divisions this season.
+Compared with the integrity of the heat, the lone rangers are a completely different style. The highly anticipated "double manager combination" before the season did not show its power due to polzingis's poor condition. The lone rangers are very dependent on dongqiqi's performance. The young talent in Europe is an indispensable core player of this team. Dongqiqi has shown image level performance this season, which has become the driving force for the lone Rangers.
+![Wave God 22 + 14 dongqiqi injury retreats, lone ranger risks 24 points, who is harder to reverse Heat gives the answer](55380833e34b40a0a8778a7287b94cdc.jpg)
+East Qiqi
+A high-profile game, but because of unexpected events and changes.
+Just two minutes into the start of the game, Luca Dongqi accidentally stepped on Kendrick Nan's foot and sprained his ankle back to the dressing room. According to the follow-up news, the lone Rangers' X-ray results were negative (no structural damage), but the game against the heat will not return. Luca dongqiqi is in good physical condition. He has played in all 24 games of the lone Rangers this season, but he was injured and retired due to unexpected circumstances.
+As a result of this unexpected situation, the lone rangers are in a mess, and the heat seize the opportunity to expand the leading differential. At the end of the first quarter, the heat were 37-23 ahead of the lone Rangers, thanks to portzingis's last minute seven points. In the absence of dongqiqi, the attack creativity of lone Rangers is obviously insufficient, and the attack firepower is greatly affected.
+![Wave God 22 + 14 dongqiqi injury retreats, lone ranger risks 24 points, who is harder to reverse Heat gives the answer](6b240b2a4a7b48bf9b3ca95b353a4a18.jpg)
+Polzingis
+The second section of the game, the heat continue to oppress the lone Rangers in the offensive end, the lone rangers are very passive on the court. After a tough first half, the lone rangers are 23 points behind the heat, and the morale of the lone Rangers at home is low. It's like a sports car running on the track. The driver's eyes are blindfolded, and the car is certainly difficult to control.
+But did you just accept the result?
+At the beginning of the second half of the match, the lone Rangers looked like a new team. They got rid of the decline in the first half. Polzingis, Powell and Tim Hathaway are also on the outside. A three-point mark is the fighting declaration of the lone Rangers. In the overall highlight performance, the lone Rangers team will continue to narrow the difference, and there are 10 points left at the end of the third quarter.
+![Wave God 22 + 14 dongqiqi injury retreats, lone ranger risks 24 points, who is harder to reverse Heat gives the answer](efb146406686470da8d28f1a6d090332.jpg)
+Tim Hathaway Jr
+Seeing the hope of reversing the game, the morale of the lone Rangers team was boosted.
+The competition for the last game became intense. Under the constant impact of lone Rangers, the heat built a leading dam and was broken down. They reversed the momentum of the game. After Tim Hadaway scored three points and Bronson scored two, the Rangers took the lead to four, leaving the heat one minute. The heat's resilience played a role again, seizing the chance to level the score.
+Will the heat repeat the game against the eagles? The lone rangers are not eagles. Their strong fighting spirit continues to burn in overtime. The lone Rangers once took the lead with 4 points. But the heat's counterattack is also particularly tough, Hiro hit the three-point ball, Adebayor got two more points, the heat against the score. Jimmy Butler missed two critical free throws, but Adebayor grabbed the crucial rebounds.
+The lone Rangers took the foul tactics. Jimmy Butler got two penalties for two under pressure. The lone Rangers lost the game 118-122. The lone Rangers have done a very good job. When they are 24 points behind, they almost turn around. They usually level the score and win the game in extra time. The heat are tough and that's why they've been able to do well this season.
+(Wen / Yan Wuqiang)

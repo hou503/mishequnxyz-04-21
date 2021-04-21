@@ -1,0 +1,29 @@
+
+---
+title: Dongqiqi, a young man not lost in praise
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The lone Rangers lost to the Clippers at home, and dongqiqi was upset by the defense. He left the stadium without an interview after the game. What did the Clippers do to dongqiqi? Beverly, Paul George and Leonard defended dongqiqi in turns. Dongqiqi's handsome face was covered with clouds. He was tied up in the whole game under the key care and failed to hit a three-point goal.
+——Three points at a time, this is the first time this season.
+Although he is only a second year player, dongqiqi started his career very early. Dongqiqi, who has a higher player, is easy to adapt to the team's playing methods. After landing in the NBA as a rookie last season, dongqiqi became a practitioner of "magic ball theory", and the three-point ball became one of his signature offensive means. Dongqiqi has a strong learning ability, and even learned the skill of three-point shooting in the backward step.
+Under the defense of the clippers, dongqiqi was very depressed in the whole game. One day later, he spoke to the media and said: "I didn't feel good (after losing the game) and I was quite angry. When we lose a game like that and I don't play well, I feel like I let everyone down and just want to be alone. The next day, everything will be all right. "
+![Dongqiqi, a young man not lost in praise](9a60c9c81afc49c59973c448629c6dc6.jpg)
+Beverly defending East Church
+There are different ways to express their desire for victory. Dongqi is quite similar to Westbrook. If they don't get the victory they want, they will be quite disappointed. They are alone or do something to vent their dissatisfaction. Dongqiqi did amazing things in the game last season. He tore his shirt when he didn't perform well, like a crazy court action artist. This time, he quickly escaped from the media, leaving behind only the shadow of depression.
+Dongqiqi left a message in the media, "we will rebound!"
+For those who are full of desire to win, what does it mean to be ruthless? The lone Rangers' game against the Suns, when dongqiqi stood on the court again, he quickly rebounded and became the master of the game. For such a gifted young man, he was excited by the praise from all over the world, but he never lost himself in the praise.
+In the first quarter of the game, although Dongqi didn't hit the three-point goal, Dongqi still scored 14 points, 6 rebounds and 6 assists - this is the most used way for Dongqi to play. At the beginning of the game, try to establish the leading tone of the game. Dongqiqi often scores double points in the first competition, which is also his fear. He can always quickly enter the competition state, just like a smart machine that has written programs.
+![Dongqiqi, a young man not lost in praise](708bfd5b49604a75bc9683385b249cd9.jpg)
+Dongqi in the game against the Suns
+In the second quarter, when dongqiqi was not present, the lone Rangers were still strong, and the young Tim Hardaway was in a good offensive state, so the lone Rangers were able to keep ahead. After half of the game, Dongqi returned to the game again, but the Suns gradually recovered their disadvantage. Before the end of the first half of the match, dongqiqi missed three goals, and the lone Rangers kept the lead.
+The sun's counterattack came in the third quarter, while dongqiqi was very powerful in the game, with 16 points in the single quarter, and the sun's 39 points in the single quarter also failed to gain too much advantage in the third quarter. At the end of the first three games, the two sides reached a draw, and the decisive battle appeared in the last game. Dongqiqi, Tim Hathaway and Seth Kuri, the three men in the offensive side of each other, the lone Rangers locked in the win.
+In the whole game, dongqiqi played 38 minutes, with 42 points, 9 rebounds and 11 assists in 12 of 24 shots - at least 40 points and 10 assists for the third time this season. In total, the rest of the season has only had two such data, Bradley bill has done more than one, and Trey young has done the other. By the way, he scored 42 points in a single game, equalling Dongqi's highest score in a single game in his career.
+![Dongqiqi, a young man not lost in praise](695cc2ed9cef47fbbcda182814855449.jpg)
+The all-round dongqiqi
+After beating the Suns, the lone Rangers finished their November schedule, and in 14 games this month, Dongqi was extremely strong. With 32.4 points, 10.3 rebounds and 10.4 assists per game, dongqiqi became the third player in history to achieve three pairs and at least 30 points per month. The first two don't have to guess, two triple masters Oscar Robertson and Russell Westbrook.
+After the game Rick Carlisle was once again asked about donchech, who said: "yes, it was a bit surprising, but not to the extent of shock. Our team is in good shape, but it's just the beginning of the regular season. We still have a long way to go. But he's playing a great season, which is absolutely exciting
+Carlisle has reason to be excited. Dongqiqi's performance in the league is like a blooming flower, with the youthful vigor and vitality of the thorn. However, he is so mature that he is not at all a person who can easily get lost in the sound of laughter and killing. When he falls down, he gets up and the sun is warm every day. Dongqiqi came out of the defeat like this. The regular season has a long schedule. A downturn or an outbreak does not mean defeat or victory.
+It is hard for a young man to be optimistic in the downturn and calm in the complacency.
+Dongqiqi has gone all the way. He is still the most beautiful kid in the league.
+(Wen / Yan Wuqiang)

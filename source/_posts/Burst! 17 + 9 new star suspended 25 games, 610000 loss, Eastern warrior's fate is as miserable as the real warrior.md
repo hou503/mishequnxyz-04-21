@@ -1,0 +1,25 @@
+
+---
+title: Burst! 17 + 9 new star suspended 25 games, 610000 loss, Eastern warrior's fate is as miserable as the real warrior
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+**The eagles have won two games in a row at the beginning of the new season, losing to the 76ers by only two points. The growth track of the new season is clearly visible. In the first week of the regular season, with 38.7 points, 7 rebounds, 9 assists and 1.5 steals per game, he was selected as the best player of the week. After the test and training of the reconstruction period, will the eagles really fly in the vast Eastern world in the new season? * *
+![Burst! 17 + 9 new star suspended 25 games, 610000 loss, Eastern warrior's fate is as miserable as the real warrior](e1e099382474476fa07af8931a309a35.jpg)
+Terre Yang
+However, against the heat, Trey young sprained his right ankle and had to stop when he was in a hot condition. At that time, the media reported that Trey young was expected to be absent for two weeks, but Trey young recovered quickly, "if you ask our team doctor Chelsea lane, she thinks I have a similar bloodline to Wolverine." In just a week, Trey young can come back. The eagles have a long rest here. Trey young just missed a game.
+Are the eagles really lucky? If you really think that's wrong, it seems that God must make trouble for the eagles. The heavy blow to the eagles will come later. League officials suddenly announced that hawks forward John Collins has been banned for 25 games for violating the drug ban, giving the reason that "Collins's growth hormone releasing peptide test results are positive."
+Collins became the third player to be banned this season for drug violations, with Wilson Chandler and de Andre Aton in the top two.
+![Burst! 17 + 9 new star suspended 25 games, 610000 loss, Eastern warrior's fate is as miserable as the real warrior](84ad45f58d114e13ab64a8cd0b11be39.jpg)
+John Collins
+John Collins issued a statement after the League announced its suspension, apologizing to all parties affected by the suspension. "First of all, I want to say sorry to my teammates, the eagles, our fans, partners and the community. I understand the impact this incident may have on the goals we are trying to achieve this season and I am very frustrated and disappointed with myself
+He also explained that he had violated the drug ban without knowing it, and said that he would appeal against it. "I have always been careful about the drug ban, but I took supplements without knowing it, including ingredients that did not meet the norms of the alliance. I plan to appeal for arbitration and hope to return to the stadium as soon as possible and continue to contribute to our 2019-20 season. "
+![Burst! 17 + 9 new star suspended 25 games, 610000 loss, Eastern warrior's fate is as miserable as the real warrior](a3913d9e7ae14ecbb45b24cfcf36bb86.jpg)
+The League banned Corinth
+John Collins has been suspended for 25 games because his players were not paid during the suspension. According to salary expert Bobby Marcos, the suspension will cost Collins 610582 US dollars. Personal loss is money and reputation, but team loss is combat power. Collins is very important for the eagles. In the first five games of the new season, Collins can contribute 17.0 points, 8.8 rebounds and 2.0 blocks.
+Collins's score and rebounds are lower than last season, and his shooting percentage is not as good as last season, but his shooting ability in the new season has improved significantly. As a third year player, if John Collins can open the offensive space, it will enrich the team's playing methods. For John Collins, the personal growth space will also be improved, but only played five games was banned.
+![Burst! 17 + 9 new star suspended 25 games, 610000 loss, Eastern warrior's fate is as miserable as the real warrior](3a698fc4dc3c485ba5a5587a7ea89ee7.jpg)
+Three times of warriors
+The team building idea of the eagles is very similar to that of the warriors in their early years. The warriors won the championship by saving Stephen curry, clay Thompson and Drummond green a few years ago. The eagles recruited young talents such as Trevor Kevin hurt and John Collins in the draft. These three young players are also evaluated as close to the warriors configuration. Trey young was called the remake Curie when he started, and helter was praised as having the potential to become the next Tomson. Collins has the same potential.
+Before they could fly, the eagles were hit hard, but they were quite similar to the warriors. The warriors are the league's most miserable team at the moment, none of them, several of the main players are all recovering. Compared with the fate of the warriors, the eagles seem to be better. Trey Young's return to the line of fire will give the eagles the greatest help, but the eagles in the absence of Collins is like a lack of wings, it is difficult to fly.
+(Wen / Yan Wuqiang)

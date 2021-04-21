@@ -1,0 +1,26 @@
+
+---
+title: Walker 39 + 6 Brown 22 points net 21 three points still can't bear the green army! Walker makes fans forget Owen
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+Celtic, back at home, finished their revenge by beating kings, ending the two previous losing streak. Although two important Celtic players have left the team in the new season, they are not greatly affected by this, but play a more pleasant state. The growing maturity of the young talent and the team's playing style tend to be the whole, which makes the Celtic show the scene of vitality again.
+However, the injuries of Gordon Hayward and kenba Walker hurt the team to a certain extent. The two main players' injuries damaged the team's strength, but the team's fierce style and fierce style still remained unchanged. Marcus smart is the face of Celtic's tough style. He said that the team changed with the season: "this season is very different, everyone is no longer oppressive, if you want to say anything, you will speak up."
+Yes, it's related to Kyrie Owen. Before the nets play Celtic, this topic will inevitably appear.
+![Walker 39 + 6 Brown 22 points net 21 three points still can't bear the green army! Walker makes fans forget Owen](f632bd8a230443838a3f9bd9ca7a5095.jpg)
+Kyrie Irving 
+Due to the poor performance of the nets team under Owen's leadership in the new season, and the fierce state of Celtic team in the new season, the outside world's voice of questioning Owen is growing, Owen and his teammates do not communicate and hurt the team frequently. A few days ago, Kendrick Perkins said: "Owen looked at the schedule before the start of the season and then 'planned' the injury. He doesn't want to go back to Boston next week, he doesn't want to be sprayed there. "Ah!"
+Questions and arguments continued, and the nets came to Boston. Kyrie Owen was not in the game against Celtic because of his injury. The noise of the field is attributed to the field. The game on the field depends on strength. What kind of fight will the nets face the Celtics? It is worth mentioning that kenba walker is back in the game and can play this game.
+After the start of the game, the nets played an attack on the main inside and outside, 5-0 ahead of Celtic. Daniel tays has become the main attacking point of the team. He keeps scoring to help Celtic keep the situation stable. Smut's three-point shooting, Jay Brown attack, Celtic team to get the lead. Green shirt into the rhythm of the game like, ojele hit a three-point ball, Celtic led to 7 points.
+In the first quarter, the nets won first and then lost. The Celtics led the nets 30-23.
+![Walker 39 + 6 Brown 22 points net 21 three points still can't bear the green army! Walker makes fans forget Owen](052c8dde253f41ed916533193aa4ae19.jpg)
+Temple becomes a wonder soldier
+At the beginning of the second quarter, the basketball team's rotation lineup broke out, and temple hit three three three-point goals in a row. Nuwaba got the attack, and the basketball team equalised the score strongly. The nets are hot on the outside, while kenba walker is on the offensive, and the Celtics are holding on to the score. Joe Harris's three-point rain started again, the nets pulled the difference to 9 points, Jay brown, Walker each three-point ball, Ding Weidi also gave a response in the outside line.
+This section of the game became an outside shooting competition. At the end of the first half of the game, the nets team led the Celtics 63-57.
+Toreen Prince started the third quarter with two three-point goals, and the nets were still in the lead. Playing nearly half of the game, kenba Walker played 2 + 1 to level the score, the game into the situation of glue. In the last two minutes, the Celtics played a 7-0 game, with the Celtics leading by 8 points. Temple hit the three-point post, the nets 86-91 behind the Celtics.
+![Walker 39 + 6 Brown 22 points net 21 three points still can't bear the green army! Walker makes fans forget Owen](3784245d48f3494e89fb1a334dbd41ae.jpg)
+Owen was ridiculed by home fans
+After the opening of the last game, Celtic team played a small climax of 8-3, and the lead was expanded to 10 points. The nets are trying to catch up with the points and narrow the gap. Kenba Walker hit three-point, Warner maker hit 2 + 1, and Celtic regained their nine point lead. The nets missed three points in a row, kenba Walker fouled two times, Celtic led to 12 points, basically locked in the game.
+At the end of the game, the Celtics beat the nets 121-110.
+The second quarter of the basketball team was very hot. In the first half, the basketball team also led the Celtic team, but the basketball team only played an excellent game. So the whole game hit 21 three-point goals, but also failed to win the game, the second half was completely suppressed. Walker was the best player in the game. He got 39 points, 6 rebounds and 4 assists in 13 of 24 shots (including 10 of 3 points and 6 of 10 shots), which made the Celtic team mocking Owen forget Owen.
+(Wen / Yan Wuqiang)

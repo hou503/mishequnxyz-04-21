@@ -1,0 +1,34 @@
+
+---
+title: Bucks for Paul Gambling may cause the bucks to lose the letter brother 3 reasons Paul can't help the Bucks win the championship
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+**As the date of December 15 approaches, the trade rumors in the alliance are like a girl's spring heart.
+According to the trade rules of the league, players signed in off-season can't be traded until 3 months or December 15 (whichever is later). In this off-season League, free players account for 40% of the players, which means that these players can't be traded by the team until December 15. The league has been calm since the start of the new season due to trading restrictions.
+**However, as December 15 approaches, all the calm surfaces will be broken, and another season Carnival will begin. Why do you say that? First of all, some teams in the League failed to sign the contract during the off-season and need to make some adjustments; second, the championship situation is extremely severe. After seeing the strength of the rivals, some teams will make targeted reinforcement. * *
+No matter which reason, it will give birth to transaction.
+![Bucks for Paul Gambling may cause the bucks to lose the letter brother 3 reasons Paul can't help the Bucks win the championship](bfbc3772b5af4c6991e74a5046c1388c.jpg)
+Screenshot of US media report
+The Bucks have had a very good start to the season, 19-3 so far, keeping the league's best start with the Lakers. It is worth mentioning that the Bucks have won a series of 13 consecutive victories, with the difference of winning points in the last three games being 41 points, 44 points and 24 points respectively. **The bucks are so strong that they can't escape the trade rumors. * *
+Recently, the US media talked about the Bucks' trade conjecture, which should be paid attention to. It's just the US media's analysis and conjecture. The Bucks still need some reinforcement work to compete for the championship. NBA reporter Bryan Sampson previously sent a message, listing five suitable players to join the Bucks team, they are Chris Paul, Bogdan Bogdanovic, Jordan Clarkson, Jamal Crawford and Golan Dragic.
+Of the five players, except Jamal Crawford, who can sign at a very low price, all four need to be traded. Why does Brian Sampson think so? Probably because the Bucks lost Brogden during the off-season, which made the Bucks lack an important backcourt player, so he thinks the Bucks need to strengthen this position.
+![Bucks for Paul Gambling may cause the bucks to lose the letter brother 3 reasons Paul can't help the Bucks win the championship](90a8a4dc1f6a4420aff024ac60099951.jpg)
+Brogden joins the Pacers
+Among the several reinforcement goals mentioned by the US media, Chris Paul is undoubtedly the most attractive one to the media and fans. According to fadeawayworld, Chris Paul is more suitable for the Bucks, who can send Bradshaw for a trade. According to the media, "CP3 will be an upgrade of the team for bradeso. If Bucks have CP3, it will be much better than now."
+Will that be the case?
+The reason why the media value Chris Paul is nothing more than the veteran's organizational ability, key ball ability and playoff experience, but this is only the inherent impression of Chris Paul. It's true in Chris Paul's peak period. He has the extraordinary ability to change the game trend and the calm and calm manner of commanding thousands of troops. But as he grows older and his status declines, his position in the league has become extremely awkward.
+Of course, the reason why the media will remain enthusiastic about Paul joining the bucks is Paul's attitude towards playing for the bucks. "I've heard Chris Paul wants to go to Milwaukee. If you want to win the championship, of course you want to play with Janice," NBA reporter Laszlo said on a show before the season began
+![Bucks for Paul Gambling may cause the bucks to lose the letter brother 3 reasons Paul can't help the Bucks win the championship](84181041e3cf44f5ab286695f8d1e9a6.jpg)
+Alphabet brother
+Is Chris Paul really suitable for the Bucks today?
+First of all, Paul's state is not as good as the media said. In more cases, the media did not consider Chris Paul's current situation out of the imagination of impression stream. Last season Paul's condition has been declining, which is an indisputable cruel reality. This season left the more competitive team environment, and some data of Chris Paul rebounded. However, his strongest weapon, the mid-range shooting, is a relatively poor level in his career.
+Maybe, Bradshaw's poor outside shooting ability will become a pain point for the bucks. Paul's outside shooting is better than Bradshaw's. But don't forget, Chris Paul's three-point shooting rate is also relatively fluctuant, and three-point shooting is not his first choice. Strictly speaking, today's Chris Paul is not better than Bradshaw, and Bradshaw has played for a long time in bucks, obviously better understanding with his teammates.
+Second, does Chris Paul really fit the bucks? Paul has a bad relationship with his teammates. He has played for several teams, which is largely because Paul is too strong in character. He always acts as a "mentor". Alphabet elder brother character will be more peaceful, he believes in strength rather than blindly obedience, can you stand Paul? Most of the stars who have worked with Paul are critical of him.
+![Bucks for Paul Gambling may cause the bucks to lose the letter brother 3 reasons Paul can't help the Bucks win the championship](e8ddc4906f684bf599d4708768f5af80.jpg)
+Is this going to happen?
+Austin rivers once talked about the relationship between Paul and Griffin. "The relationship between Paul and Griffin is very strange. I don't know why. It's quite strange. We don't know who is the leader of the team. If you want to discuss this issue, it will eventually turn into a quarrel. We didn't dare to talk to Griffin about it at that time, because no one knew what his reaction would be
+Third, Paul's $124 million contract for the remaining three years is a big bet for bucks. The bucks are under a lot of pressure. Everyone knows what it means for a star player to fail in a team's seven seasons, such as James, Howard, Anthony, Davis and Durant. What the Bucks need to do on their way to the championship to make sure alphabet is willing to stay in Milwaukee in the future.
+For this reason, Bucks may make some attempts, but Chris Paul is a costly gamble. If he loses, he will not go back. Paul's contract is difficult to find a team to take the offer. Just imagine, if the Bucks can't win the championship with Paul, there's no room for adjustment next season. If there is such a bad situation, the Bucks may lose the letter brother.
+So, are bucks really going to trade Paul?
+(Wen / Yan Wuqiang)

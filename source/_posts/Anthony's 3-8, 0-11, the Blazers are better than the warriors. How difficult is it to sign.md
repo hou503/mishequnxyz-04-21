@@ -1,0 +1,24 @@
+
+---
+title: Anthony's 3-8, 0-11, the Blazers are better than the warriors. How difficult is it to sign
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+After losing to the Bucks, the Blazers have lost nine of their last 11 games, and since the start of this wave of road trips, only one win has been won over the Spurs in four games. With this bad record, the Blazers fell to the third lowest position in the west, behind them were the Spurs and the warriors. Is there anything worse? The Blazers need to get back in shape.
+Of course, it's not surprising that the record of the Blazers is so bad. The team has encountered serious injury problems, and the inner line has become a disaster area hit by injury. The last game against bucks, Whiteside also missed the game, the inner line was the opponent crazy bombed the slum. Lillard was also absent from the game against the Bucks, but he will be able to play for the Cavaliers next.
+![Anthony's 3-8, 0-11, the Blazers are better than the warriors. How difficult is it to sign](dc1a4f47be264382a21c6ab74b2dfa8e.jpg)
+Carmelo Anthony 
+In order to solve the problem of the team's lack of attack, the trailblazers signed veteran Carmelo Anthony. Anthony's two games were in a normal state, but showed an upward momentum. Is Anthony going to be a trailblazer? The game against the Cavaliers is a good chance for the Blazers to bounce back. However, it should be noted that the Cavaliers lost too much in the game and they also need a game to boost their morale.
+Against the Cavaliers, Whiteside was still not able to return, ToRiver was put into the starting line-up, Anthony also continued to start. The Blazers' interior was quite empty, and they were ravaged by Tristan Thompson at the start of the game, but the Cavaliers didn't score enough points, and the Blazers were able to deal with it on the offensive side. The shooting efficiency of the first game of both sides is not high, and the game is dull and dull.
+Damien Lillard made one of two free throws, and de ravidova hit a three-point goal. The two sides drew 19 in the first quarter.
+![Anthony's 3-8, 0-11, the Blazers are better than the warriors. How difficult is it to sign](5fb51affeb9047b2a3111a3b6edd232f.jpg)
+Damian Lillard 
+After the start of the second quarter of the game, Cleveland substitute Clarkson fired on the outside line, and Larry NANs Jr. also picked up the inside line. The Blazers suddenly had no way to parry. Little Gary Trent and toliver also hit three-point goals. The trailblazers gradually got close to the score and the game got stuck. However, the trailblazers began to suffer quite a loss, Tristan Thompson and Larry South bombed the basket, and the Cavaliers regained the lead.
+At the end of the first half, the Blazers trailed the Cavaliers 42-49.
+Garland and Sexton started the second half of the game to strengthen the attack, the difference was quickly opened to 12 points, the blazers on the field is difficult to defend the opponent. Unable to defend with the opponent to launch a counter attack, the three-point fire of the backcourt double shot is good, Anthony also made timely contributions, the Blazers finally close to the difference. The match was glued to the end of three quarters. Clarkson shot from the outside of the post, and the Cavaliers led 76-69.
+![Anthony's 3-8, 0-11, the Blazers are better than the warriors. How difficult is it to sign](a0ec57ac089d478f9efd4213b523c9bb.jpg)
+Hassan Whiteside 
+At the end of the game, the two sides had a scuffle, and the score was pulled back to double figures by the Cavaliers. Anfenni Simmons scored 5 points in a row to narrow the difference. Clarkson's performance in this game was quite hot, which made the Blazers' counterattack repeatedly suppressed. Clarkson scored the highest 28 points in the whole game with 3-point, 6-for-6 in the whole game. Lillard hit the three-point goal in the last minute, but it was too late. Sexton made two free throws, and the Cavaliers beat the Blazers 110-104.
+The Blazers lost another game, and the Spurs ended their eight straight losses, so the Blazers fell again, just better than the bottom warriors in the West. There are a lot of problems with the Blazers. First of all, there are too many injuries for the inside players. No one can protect the basket. The Cavaliers score 50-36 in the lead. Second, the attack is still weak. Anthony needs to improve the attack efficiency.
+The internal problem needs to be improved. After Gasol was cut, the Blazers said they would not sign new players immediately, but how to solve such a dilemma? Although signers may not be able to solve the problem, and it is difficult to find the right free players for the team immediately, but the team's internal gap needs to be filled as soon as possible. Is there a better way for the trailblazers when there is an urgent need to strengthen the interior?
+(Wen / Yan Wuqiang)

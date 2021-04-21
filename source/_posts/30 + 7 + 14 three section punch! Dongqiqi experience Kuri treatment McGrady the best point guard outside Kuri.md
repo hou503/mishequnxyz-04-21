@@ -1,0 +1,23 @@
+
+---
+title: 30 + 7 + 14 three section punch! Dongqiqi experience Kuri treatment McGrady the best point guard outside Kuri
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The lone ranger team's home game against the Cavaliers ended with a 143-101 victory over the opponent. The lone ranger team won a wave of four consecutive victories. This is also the second consecutive game of the lone ranger team. Before that, the game against the warriors, the lone ranger team won 142-94, and * * won 90 points in total in the two games. According to the statistics, the lone ranger team has created the fourth difference between winning points in two consecutive games in NBA history. * *
+![30 + 7 + 14 three section punch! Dongqiqi experience Kuri treatment McGrady the best point guard outside Kuri](eba067a2343e42ba9de515e3a3ab5cd3.jpg)
+Lone ranger defeats Knight
+Since the start of the new season, the performance of the lone Rangers has improved significantly compared with last season. In the first 15 games, 10-5 ranked fifth in the West. At this time last season, the lone Rangers were 7-8. Compared with the last season, the attack firepower of lone Rangers has been greatly improved, from 108.9 points to 117.9 points per game. The team's attack efficiency has also improved compared with last season, and the lone ranger team has become one of the most anticipated potential stocks in the West.
+The change of the new season of the lone Rangers has a lot to do with the team's squad. After bolzingis came back, the team had a big player with both attack and defense. The whole team has a strong integrity. Many players have certain projection ability on the offensive side, and the defensive side is more active and tough. What's more, Luca dongqiqi, the League Rookie Wang continued to grow last season, averaging 29.9 points, 10.4 rebounds and 9.7 assists in the new season.
+![30 + 7 + 14 three section punch! Dongqiqi experience Kuri treatment McGrady the best point guard outside Kuri](56adfaeac89049bf9557e0d198560751.jpg)
+Luca dongqiqi
+**Dongqiqi's new season is getting better and better. He has 7 triple doubles in 15 games, including 31 points, 13 rebounds and 15 assists against the Lakers. After scoring such excellent data against idol James, James praised the younger generation "you are really a tough guy". **Dongqiqi's skill is very comprehensive. He is breaking many records of the youngest creators related to the three pairs of data.
+In the game against the warriors, dongqiqi cut 35 + 3 pairs of data for the second consecutive game, and also set a record of 35 + 3 pairs with the shortest time. Dongqiqi played only three games against the warriors, and played 25 minutes to reach this data. It's easy to think of Stephen curry after three quarters of playing against the warriors, but today's warriors can only lament.
+![30 + 7 + 14 three section punch! Dongqiqi experience Kuri treatment McGrady the best point guard outside Kuri](2e6a7381256c4842b29f143c7813b63f.jpg)
+East chip defense James
+And in the next game against the Cavaliers, dongqiqi once again enjoyed the three-quarter card playing treatment. In the third quarter, dongqiqi scored 16 points in a single quarter, and the lone Rangers led to 40 points. The last game became a waste of time, and Carlisle didn't send him on. After the whole game, dongqiqi played only 28 minutes, but he scored 30 points, 7 rebounds and 14 assists.
+East chip enjoys the treatment of Stephen curry, and former NBA star McGrady put the two people together. McGrady said in the program: "curry is still recovering and can't play. Kerry Owen has several games off because of injury. Of course, Westbrook is still playing. **But I have to say that Luca dongcici is the best point guard in the league so far this season when Curie can't play. * *
+![30 + 7 + 14 three section punch! Dongqiqi experience Kuri treatment McGrady the best point guard outside Kuri](c97c6003781c4d7792add72471e3714b.jpg)
+McGrady comments on dongqiqi
+Although Dongqi is still young, his style of playing is young and mature, so he has been praised in the league. Even on the latest official MVP list, dongqiqi climbed to the top three from the ninth place in the previous week, only second to alphabet brother and James. Dongqiqi's performance is in the ascendant. This young talent is creating a new history. Dongqiqi is writing a new legend of the lone Rangers.
+(Wen / Yan Wuqiang)

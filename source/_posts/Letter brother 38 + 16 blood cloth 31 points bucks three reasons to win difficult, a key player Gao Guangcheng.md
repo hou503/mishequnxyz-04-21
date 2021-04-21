@@ -1,0 +1,29 @@
+
+---
+title: Letter brother 38 + 16 blood cloth 31 points bucks three reasons to win difficult, a key player Gao Guangcheng
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The Bucks returned to Milwaukee with a happy smile after a 3-1 away trip to the West. Letterman wrote on social media: "it's a great away trip, but we will continue to improve." Indeed, the trip to the west is a huge challenge, and the 76ers suffered a lot in the journey. The Bucks have done a lot better than the 76ers.
+Back at home against the bulls, the Bucks will have to deal with injury first. Chris Middleton will be absent for 3-4 weeks due to a bruise in his left thigh. The Bucks started the season a little bit difficult, although the team's strength is still good, but many games are playing very glued. The bucks are out of action and have lost important player brocgden. The new season needs to be adjusted. At present, it is not the best condition.
+However, the team's leader letter brother's performance is still strong, he is also the key defensive player of the bulls, Wendell Carter said before the game: "defending Younis (adtokumbo) needs the efforts of the whole team. I'm the kind of person who will be proud to defend the star, so I'm looking forward to playing against him The effect of defending alphabet brother will affect the game process. Can the Bulls beat the powerful bucks?
+![Letter brother 38 + 16 blood cloth 31 points bucks three reasons to win difficult, a key player Gao Guangcheng](c1ddc9badf2a476ca5dab917364a17a5.jpg)
+Kobe white
+Satolanski hit three-point from the beginning of the game, Brooke Lopez made a mistake, satolanski hit back and the Bulls started 5-0. Brooke Lopez's offensive success also broke the deadlock for the Bucks, who scored a wave of 9-0. The game began to form a sticky situation, Matthews hit the three-point ball, letter brother hit 2 + 1, Bucks anti super score.
+The bucks are better than the bucks and always find opportunities on the offensive side, but the Bulls doggedly fight with them. Kobe white and marcanin hit three-point successively, and the Bulls beat the score 27-22. Conoton hit a three-point response. The Bucks scored 6-0 to catch two points behind. Archidiacono got the shot, Brooke Lopez hit the post and the two sides played extremely tight.
+The first competition is over. The Bulls lead the Bucks 32-30.
+![Letter brother 38 + 16 blood cloth 31 points bucks three reasons to win difficult, a key player Gao Guangcheng](cd824a0777684b68b2f33a0e4998e293.jpg)
+George Hill 
+Cowal hit a three-point goal at the beginning of the game. The Bucks surpassed the score at the beginning of the second quarter of the game. The Bulls also quickly entered the state, scoring 5 points for each goal inside and outside. Kobe White's offensive form is excellent, another three-point goal to help the Bulls lead to 5 points. Bucks in attack with the opponent, letter brother successive attack success, the score will be tied to 48. Both sides you come and I go, the game fell into a stalemate, Zach ravenskye in three points, the Bulls lead four points.
+Robin Lopez scored two points, Zach Raven scored another three, dwenzo scored four in a row, and the Bucks were one point behind. However, the Bulls' offensive momentum did not slow down. Coway white and cedis young each hit three-point goals, and the Bulls took a three-point lead. Bucks' last attack opportunity, bradso's attack was successful, Bulls' last attack failed, bulls led 66-65 at half-time.
+![Letter brother 38 + 16 blood cloth 31 points bucks three reasons to win difficult, a key player Gao Guangcheng](dce79b49c67f411685e605954662b17f.jpg)
+Eric Bledsoe 
+In the third quarter, the Bulls made mistakes in their first attack. Alphabet made a foul two penalty one, Bucks tied the score. However, the Bulls' attack is still excellent, with ravenlian scoring 5 points, satolanski scoring another two points, and the Bulls leading to 7 points. The Bucks scored 5-0, and satolanski responded with a three pointer.
+Letter golian got 6 points, Bucks equalised the score, the two sides to 82. Bucks continue to rampage in the offensive end, making a 6-0 score, Seth young scored another three-point goal, the Bulls stopped the decline. Bucks continue to attack the Bulls defense, Brooke Lopez three points, Bucks lead to 6 points. The Bucks took a 97-86 lead in the third quarter of the game.
+![Letter brother 38 + 16 blood cloth 31 points bucks three reasons to win difficult, a key player Gao Guangcheng](303511e1aaf64b7497ed37fe483b5e86.jpg)
+Alphabet brother
+Of course, the bulls are not willing to lose, Kobe white feel hot, the last game with the team out of 14-7 climax, the difference to catch up with 7 points behind. However, after that, the attack of both sides fell into silence. Raven shot three points in a row, and the game also entered a stalemate stage. In the last two minutes, bladeso attacked in a row, Matthews fouled twice, and bucks led to 9 points.
+In the end, the bulls were unable to catch up and lost 115-124.
+The reason why the whole game with the bulls is glued to each other is that: first, the Bucks' three-point projection is really poor, the whole team only has 6 of 33 shots, while the Bulls' opponent has 18 of 43 shots; second, the Bucks made too many mistakes in the whole game, but the team made 22 mistakes in 24 assists; third, the team's free throw hit rate is low, of course, in 34 of 47 shots, the team received the letter brother 2 0 for delay in 11.
+However, the team has obvious advantage in the inner line, and the rebounding is better. It won the game. To beat the bulls, Bradshaw played an important role. He got 31 points from 12 of 14 shots, and 12 of 12 from 12 of 12 shots. His efficiency was very high. Bradeso has been in good shape recently and has scored 20 + points in five consecutive games. His performance is very important for the bucks.
+(Wen / Yan Wuqiang)

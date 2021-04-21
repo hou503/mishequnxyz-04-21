@@ -1,0 +1,28 @@
+
+---
+title: George 27 + 6 Harrell, 30 points, raven's semi-final victory, reverse, defeat the clippers, where are you going to lose
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The Clippers beat Timberwolves on the road. In the last five away games, they won 4-1, leaving the last one. In the game against Timberwolves, the Clippers showed the horror of the double giant team to the whole league. Although it was an atypical clippers game, the two men relied on their outstanding personal ability to score 88 points and win the game.
+The reason why such a game can be played is directly related to the absence of many players in the team. With the absence of Beverly and Ludwig, the operation of the team is not smooth. "We know we have to stand up and play aggressively, which is the key to our win in the absence of many players because of injuries," George said after the game. Early play aggressive, in the beginning to establish an advantage
+However, this is not the most difficult situation for the Clippers. In the Clippers' away game against the bulls, Beverly and Ludwig continue to be absent, while Cowie Leonard is off again. The good news is that shamet has recovered from his injury against the Raptors last month and missed the Clippers for half a month. He is back on the court at this time and can help the Clippers a lot.
+![George 27 + 6 Harrell, 30 points, raven's semi-final victory, reverse, defeat the clippers, where are you going to lose](207af3a97307471bbc239f9c0be1c05f.jpg)
+Monteiz Harrell
+The Bulls took control of the first offensive ball, Wendell Carter missed the attack, and the Clippers made mistakes in the first attack. Zach Raven was the first to score for the bulls, and Paul George responded with a fierce fight. The Clippers started the game better, playing a wave of 9-0 scores, the Clippers got a 7-point lead. Satolanski fouled two penalties and one hit, and the Bulls finally stopped bleeding.
+After markanin hit the three-point goal, SETIS young started in the attack, the score was constantly approaching. When cedis Young got the 10th point in the first quarter, the Bulls drew the score, Derek Walton hit the three-point goal, and the Clippers again exceeded the score. The Clippers led the bulls 29-24 at the end of the first quarter.
+![George 27 + 6 Harrell, 30 points, raven's semi-final victory, reverse, defeat the clippers, where are you going to lose](06e19dccdd9e420396693dfc2656965c.jpg)
+zach lavine 
+
+The Clippers extended their lead to as much as 15 points after Patterson sent two free throws, but the Bulls responded quickly. Dunn fired the first shot in the counterattack, markanin responded positively, while Zach Raven also responded in the attack, and the Clippers' advantage was eaten away by the ground silkworm. Zach Raven's final attack, the first half of the game, the Bulls only 55-57 behind the Clippers.
+![George 27 + 6 Harrell, 30 points, raven's semi-final victory, reverse, defeat the clippers, where are you going to lose](cb5ca79bcd224fd690f2d5a079d4705a.jpg)
+Aapo Markkanen
+At the beginning of the third quarter, both sides fell into the scoring shortage, and Terence Mann broke the deadlock. The bulls are getting better, with raven and malcanning scoring three points each. The Bulls hit a 12-0 offensive wave and the anti super clippers took a nine point lead. This wave of attack tide hasn't retreated, Seth young hit three-point ball, malcanning added two more points on the offensive end, and was finally interrupted by two penalties and two strikes of Harrell.
+Harrell helped the Clippers through the tough time. Paul George scored six points in a row. The Clippers narrowed the gap. Patterson hit three-point, clippers were two points behind the bulls, and Valentine was the color. After Harrell played 2 + 1, raven pierced the outside line for three points, and the third quarter ended in a counterattack, with the bulls 84-79 ahead of the Clippers.
+![George 27 + 6 Harrell, 30 points, raven's semi-final victory, reverse, defeat the clippers, where are you going to lose](f33f18437d724243983094144107a123.jpg)
+paul george 
+Harrell's threat under the basket is still very big, while Valentine has become the magic of the bulls, and the two teams are tightly locked in a stalemate. Paterson's attack was successful. McGrady made two penalties for a foul. The Clippers drew the score. The Clippers replaced Paul George and started a duel with the Bulls ahead of time. Paul George and shamet were successful in their respective attacks. Zach Raven made 3 + 1 but missed the penalty, but the bulls were still 1 point ahead.
+Paul George made a three-point shot, Wendell Carter made a shot, George made two fouls and got two points ahead of the Clippers. Shamet's three-point shot, Wendell Carter's second offensive dunk, Paul George's backhand hit, and the bulls, 5 points behind, called a pause. Raven quickly hit three-point, Paul George two free one, Valentine three-point hit equaliser.
+On the key attack, Paul George missed the shot, Zach Raven played 2 + 1, and Paul George never hit the ball. At the end of the game, the Bulls beat the Clippers 109-106. Zach Raven became the key player in the game, scoring 31 points in the whole game and finishing the semi-final.
+Both sides took a certain lead in this game, but they were also recovered by the other side, and the game became white hot at the last moment. Many main players of the Clippers are absent. They have encountered great difficulties in the game. However, Harrell's excellent performance in the first three quarters helped the Clippers to hold on to the last quarter of the game. However, at the crucial moment of the game, the Clippers made too many mistakes and lost the game.
+(Wen / Yan Wuqiang)

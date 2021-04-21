@@ -1,0 +1,43 @@
+
+---
+title: Can't the Lakers trade What will happen to the change of one man's hand
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The Lakers went all the way in the regular season, beating the magic to 22-3 after the game, creating the best start for the Lakers since 1985-86 season. Now the Lakers are winning and have a chance to beat the 24-3 start to the season. The Lakers lost in the opening game, but the team adjusted very quickly, and now they have a very good record.
+While the Lakers are moving forward, NBA reporter Anthony Slater reports a piece of news about the Lakers, which is closely related to the operation of the Lakers during the off-season. Anthony Slater said that in the free agent market in the summer of 2019, the Lakers had offered a total price of nearly $100 million for restricted free agent D'Angelo Russell.
+In a sense, there are many things like this in the NBA. Many players will meet with multiple teams and give the final answer from several offers. D'Angelo Russell received several offers, along with the warriors and the Lakers, and the Timberwolves offered him a contract. Of the three offers, the Lakers offer the lowest, while the warriors offer the highest.
+![Can't the Lakers trade What will happen to the change of one man's hand](34b4af027933458ab81a34840b23d8e4.jpg)
+The Lakers have a great record
+Of course, it happened to the Lakers, and received a lot of attention.
+**The Lakers got Anthony Davis through a trade during the off-season, but this is not the ultimate form of the Lakers' team building. The Lakers' management also hopes to get a third star player. Kerry Owen, de Angelo Russell, Jimmy Butler and others all appear in the rumors. The first choice for the Lakers is kewy Leonard. If the three superstars form a "big three" team, it really looks beautiful. * *
+The Lakers missed some reinforcement opportunities because of the delay of Cohen Leonard's decision. Until Cohen Leonard decided to join the clippers, the Lakers had few free players to choose from. In a sense, gambling Leonard has affected the team's reinforcement work, which is what the Lakers didn't do well during the off-season. However, the Lakers' team is more competitive.
+In fact, the Lakers may not have been able to get D'Angelo Russell even without waiting for kowai Leonard. In addition to bidding lower than his competitors, Russell's restricted free agent status is also an obstacle. But the Lakers didn't fail to get other people's opportunities. During the off-season, free players are like a fish in the water. Star players are hot goods, but they have a lot of choices.
+![Can't the Lakers trade What will happen to the change of one man's hand](2ae1118c9dd548c5b2321b71ece173d8.jpg)
+De Angelo Russell
+![Can't the Lakers trade What will happen to the change of one man's hand](f72a78864ed3490c97f5253b09bced3f.jpg)
+Screenshot of US media report
+It doesn't make any sense for US media to bring up the old story again, but let's consider another question. Would it be better if the Lakers signed Russell? You might think that's a waste of time, but from another perspective, it's another dimension of the Lakers' current lineup. The Lakers are doing well in the squad. Can they make themselves better?
+In other words, whether the Lakers have the need to trade.
+If you only look at the current Lakers team and team lineup, there is no need to change the Lakers team. Duan ran said in the commentary, "the Lakers team is too good to be any better.". The fact can support such a view, with the bucks to maintain the best record of the league season so far, and keep approaching the best record of the team history. Is there any better configuration than this? However, this kind of evaluation is only suitable for the moment, or only in the regular season.
+In many cases, it is difficult to be objective and fair in the evaluation of a team. The outcome of several games can change the external view. * * at the beginning of the season, the Suns performed well. Monti - Williams and the Suns were put on the altar. The 76 men started five consecutive victories, and many saw it as the strongest tour in the East. The Spurs were 4 and 1 in the first five games, and marveled at the mysterious sound of Popovich. * *
+![Can't the Lakers trade What will happen to the change of one man's hand](63814e63dd6243a6a66fe5bac7d462b4.jpg)
+The Suns are fading
+What do you mean by all this? The quality of any team is judged by the results. The Lakers have won a lot of praise from the outside world, which is largely due to the excellent results of the team. Whether such a record can be sustained, and the Lakers' performance in dealing with the strong opponents, it seems that it will still be a matter of concern to the outside world. What's more, once lost to the clippers or bucks, the external wind review will change.
+Isn't it?
+For example, how do the media and fans evaluate the Clippers when they beat the Lakers in the opening game of the season? It's no surprise to hear that "when Paul George comes back, the NBA is going to end" - yes, Paul George missed the game to beat the Lakers. But does anyone else say that now? What most people see is what the team's current performance is, which determines most people's opinion.
+Back to the Lakers, the current record of the Lakers, of course, will make them all look like the best. **From the tacit understanding of Anthony Davis and LeBron James, from Dwight Howard's face full of child like smile, from the evil eyes of Jared Dudley, from the expression like seeing girlfriend after the dunk of kaluso, we can see the joy of the Lakers without words. * *
+![Can't the Lakers trade What will happen to the change of one man's hand](616ca58f61b84620b2b3d800e8b8a846.jpg)
+Alex Caruso
+But we all said that happiness is based on winning, and happiness is based on loose public opinion. Is there really nothing wrong with the Lakers? In fact, the Lakers' second team has always lacked starting point, which is more obvious at the beginning of the season. The constant win has covered up the problem, but it hasn't been solved completely. When James isn't there, the team will still have trouble a lot.
+By the way, LeBron James is the key player of the Lakers. Let's take a look at a recent data released by the media. According to the League statistics, LeBron James' real positive and negative value (RPM) + 9.7 of the game so far this season is superior to the league. How terrible is this? The players in second and third place are only + 6.73 and + 6.72, a lot lower than James. * *
+**Not intuitive enough, right? The third + 6.72 is Janice adetokumbo. * *
+James's influence on the Lakers' game is huge. It seems to be a normal thing. And James's physical condition is very good. There won't be any problem in itself, right? **James's playing time this season has declined compared with last season, which is also good news, but his playing time is still in the top 20 of the league, roughly the same as Donovan Mitchell, Andrew Wiggins, Trey young and other young people. * *
+![Can't the Lakers trade What will happen to the change of one man's hand](b5cc28ae085244928f4f62666b35f22f.jpg)
+Andrew Wiggins 
+Well, we can summarize what we want to express.
+LeBron James is too important for the Lakers, his personal condition determines the fate of the Lakers, and it's hard for him to stop to take turns or reduce his playing time. Of course, James is not willing to take turns. He is quite confident in his physical condition. He only suffered serious injuries last season in 17 seasons, but the Lakers can't bear the impact of James' absence.
+In this respect, the Lakers lack an offensive starting point to replace James. Although Rajan Rondo and Caruso can play a role, they are not the best choice all the time. This is one of the reasons why the Lakers consider Russell during the off-season. If Russell is signed, the Lakers may miss Danny green and pop, etc. the team may have some difficulties in the regular season.
+After all, the tactical position of a player with the ball is different from that of a player without the ball.
+**The Lakers' problems will be in the playoffs, but before that, it is not impossible to change, or to make some choices from the buyout market, or to carry out reinforcement operations through trade. However, the Lakers will not make a hasty decision to destroy the current chemical reaction. If there's anything that's going to hit the Lakers and make a big difference, it's likely that they didn't do well against their championship rivals. * *
+(Wen / Yan Wuqiang)

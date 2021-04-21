@@ -1,0 +1,22 @@
+
+---
+title: Trey young 24 + 7 Hunter 18 points Eagle beat warriors 10 consecutive defeats! Warriors continue to be at the bottom of the League
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The tragic fate of the warriors continues. After losing to the magic on the road, the warriors finished at the bottom of the League 4-17. From the perspective of the warriors' current squad, it's not realistic to do anything, so when it comes to team changes, manager Cole said: "in the past three or four games, I feel the execution of the team is better, we need to stick to it and make it work."
+The away game has been two consecutive defeats, the warriors' away journey is still continuing, they will challenge the eagles. The eagles are in the same boat as the warriors, and their record is similar to that of the warriors. After defeating the Nuggets, the eagles have lost ten times in a row. After losing 49 points in the last game, Trey young was furious after the game. He said: "for me, I am very angry. What I can do, what our team can do is to change the status quo on the court. We really can't just talk about it."
+Who can win a game between the two teams?
+![Trey young 24 + 7 Hunter 18 points Eagle beat warriors 10 consecutive defeats! Warriors continue to be at the bottom of the League](30293c55f31d4d2cb0e543bcc28e3761.jpg)
+Terre Yang
+Collie Stan got two points first, Damian Jones responded and scored two for the eagles against his old club. Pascal started the game in good shape and continued to help the warriors take the lead. Berks hit a three-point goal. From the middle of the first quarter, the warriors were seven points ahead of the eagles. The eagles start the attack in general, Trey Young's desire to attack is not strong.
+Spellman got two points, Evan Turner made two fouls and two penalties, and the eagles held on to the score. Ryan played hard on the offensive side, twice in a row, and the eagles were only 1 point behind the warriors. Kay Bowman scored two points for the warriors, leaving the eagles with the last shot, while Ryan's outside shot missed. At the end of the first quarter, the warriors led the eagles 23-20. ​
+![Trey young 24 + 7 Hunter 18 points Eagle beat warriors 10 consecutive defeats! Warriors continue to be at the bottom of the League](a3e1887c75ba4fe79eb3be4ba2643998.jpg)
+Pascale
+In the second quarter, Jabari Parker and hunt scored 6 points each, while the eagles scored 12-4, exceeding the score. Trey young came back on the court and hit the three-point ball quickly. The eagles gradually recovered their attacking feeling. Hunter scored another three-point goal, and the eagles led to nine points. In the last minute, both sides scored two points. At the end of the first half of the game, the eagles led the warriors 49-40.
+Damien Jones was in excellent form against the old owners, scoring in the first half of the third quarter, so the eagles also expanded the gap. The difference was a little close, and Trey young came out in the attack again. The warriors had a hard time. Redish hit the outside shot and the Hawks are 20 points ahead. Vince Carter finished the third quarter with the eagles leading the warriors 76-53.
+![Trey young 24 + 7 Hunter 18 points Eagle beat warriors 10 consecutive defeats! Warriors continue to be at the bottom of the League](6383412b917c4c61a2c1fc387a09f7ed.jpg)
+Jabari Parker 
+At the end of the game, the warriors fought back for points, but the team could not defend well, and the warriors could not get close to the score. In the middle of the game, the eagles are still 20 points ahead of the warriors, and the warriors are unable to change the process of the game. The game early into the garbage time, the fish belly team competition, the warriors become the worse team. At the end of the game, the eagles beat the warriors 104-79.
+The warriors are still out of action, only played a good game, the next three games team attack problems. In the face of the eagles with general defensive ability, the warriors scored below 20 points in the second and third quarter, and only got 13 points in the third quarter. The eagles stopped the embarrassing 10 consecutive defeats, while the warm warriors continued to be at the bottom of the league.
+(Wen / Yan Wuqiang)

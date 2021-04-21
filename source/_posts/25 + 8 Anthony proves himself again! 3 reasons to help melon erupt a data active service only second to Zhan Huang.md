@@ -1,0 +1,27 @@
+
+---
+title: 25 + 8 Anthony proves himself again! 3 reasons to help melon erupt a data active service only second to Zhan Huang
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The Blazers' bad schedule, in Chicago, finally temporarily drew a comma, away 117-94 to beat the bulls, the Blazers to stop four consecutive defeats. For the Blazers, it's very important to win at this time. With a wave of 2-10 cliff dive, the Blazers' Western ranking has slipped to No. 14 - yes, just in front of the warriors.
+At the start of the sixth straight away, the Blazers took the lead in beating the ailing spurs and then lost four games in a row, including the pelicans and the Cavaliers. The game against the bulls is the last game of the sixth straight away. The Blazers won the game to avoid the appearance of five consecutive away defeats. What's more, Anthony proved himself in the game, making 25 points and 8 rebounds in 10 of 20 shots (including 3-pointers, 7-shots and 4-shots).
+![25 + 8 Anthony proves himself again! 3 reasons to help melon erupt a data active service only second to Zhan Huang](423c80c822b9491fb7e024884227491c.jpg)
+Anthony and hood
+It seems to be doomed to the general, God is so kind to Anthony, in the place where he fell gave him a chance to climb up. Before Anthony left the league, his last team was the bulls. Although he was traded to the bulls and was cut before they went out, Anthony and the bulls were somehow linked. A year later, he returned to the game, and his real starting point was exactly in the game against the bulls.
+Anthony after twists and turns signed the trailblazers, and because the trailblazers lack of people to enter the starting lineup, the performance of the previous three games is not good enough. In the three games, the average contribution is 13.0 points, 4.3 rebounds and 1.7 assists. The shooting percentage is only 34%, which is not the performance of taking shots in any case. What Anthony needs is time, and it turns out that Anthony can help the team on the field, as it did against the bulls.
+![25 + 8 Anthony proves himself again! 3 reasons to help melon erupt a data active service only second to Zhan Huang](45435e16f6674fd797c1f07791f3e012.jpg)
+Anthony is in good shape
+Anthony gradually found his own familiar rhythm of the game, but if the word "dream back to the top" is used to describe it, it is too pretentious. Anthony's excellent performance in this game, to some extent, will be a turning point for his new life, but can he really continue his performance in this game? This is obviously more like a good wish.
+What are the factors behind Anthony's outburst against the Bulls?
+First of all, the bulls are not a strong opponent. This team is very immature. When the team is playing well, it can make a lot of difficulties for the Lakers. But this team has a lot of problems in attack and defense. In this game, the bulls are only able to withstand the Blazers in the first quarter. In the second quarter, the score is opened. In the third quarter, the score is 30-18. Before the last quarter, the bulls are 20 points behind the Blazers.
+![25 + 8 Anthony proves himself again! 3 reasons to help melon erupt a data active service only second to Zhan Huang](ea227950b5884919b2c58b04eb3f6257.jpg)
+Anthony talks to his wife
+Secondly, the support of his family injected confidence and motivation into Anthony, and his wife Lala cheered Anthony on the sidelines. Speaking of his family's support after the game, Anthony said passionately: "sometimes we don't cherish such moments very much and take such things for granted. But this time, my wife is sitting on the sidelines, my son is in the video, they are all here, and my family's support is all here, which is of great significance. "
+Third, the Blazers are eager to win, Anthony's heart is burning with fire, this mentality has a great impact on the game. The trailblazers can no longer be regarded as the strong. They are very tired along the way, but they must stand firm and get out of the current bad state. Whiteside's return to the team to support the inside, the Blazers need to win to restore confidence, they also won the game.
+![25 + 8 Anthony proves himself again! 3 reasons to help melon erupt a data active service only second to Zhan Huang](929e0b9ef2bc47968d687ada48318461.jpg)
+Carmelo Anthony 
+The game also has a special significance for Anthony. After 25 points, his career total score reached 25615 points, surpassing Alex inglish to rank 18th in the history scoring list. The 17th player in the history scoring table is Garnett. Anthony needs another 456 points to draw with Garnett. It is worth mentioning that Anthony's total score is the second most active player, after LeBron James' 32979.
+In any case, Anthony can have such a good performance is a good start, he looks forward to the outside world, but also can make a contribution in the offensive end. Although Anthony was once cold in the league, but he has a high prestige among the fans, the Bulls home fans gave him cheers. Anthony also said after the game, "my efforts to win such a moment for themselves, but this is only a game, we will continue to work hard."
+Anthony's return, even if it is no longer a handsome boy, is still full of expectation.
+(Wen / Yan Wuqiang)

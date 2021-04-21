@@ -1,0 +1,24 @@
+
+---
+title: Quasi kill! Fatso makes people love and hate to kill emperor and Downes. Who is the first center
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The Nuggets played Timberwolves 27-13 in the third quarter, and nuggets entered the final game with a 12 point lead. But the Nuggets didn't keep the lead until the end of the game. In the fourth quarter, they played more than five minutes, and the Nuggets also led the Timberwolves by 16 points. However, the trend of the game is amazing. The Nuggets didn't score a point in the next seven minutes, and were blown 16-0 by Timberwolves to drag the game into overtime.
+It's only seven minutes from heaven to hell, and it's hard to imagine the last seven minutes of the game. When Downes, who assisted Wiggins in the bottom corner, hit the three-point ball, it seemed that there was a voice mocking the nuggets that "it costs to waste opportunities". Fortunately, Wiggins missed the outside shot, giving the Nuggets the chance to prove themselves in extra time.
+And the Nuggets seized the opportunity.
+![Quasi kill! Fatso makes people love and hate to kill emperor and Downes. Who is the first center](07bd3c316e714dfe91990b4a553a0ecf.jpg)
+Yorkie's data
+At the last moment of overtime, Jokic faced down the defense of Downes and made a golden rooster's independent backward jump shot to kill Timberwolves. In the second half of the fourth quarter, the performance of the whole team was poor, but Jokic solved the battle with a high-level quasi kill. Mike Malone didn't know whether to cry or laugh. In the last game against the 76ers, Jokic also made a key shot before the end of the game to help the Nuggets surpass the score.
+Speaking about Jokic after the game, Mike Malone said: "Nikolai (Jokic) is the best player in our team and he is also an MVP candidate. I can still play such a good performance in the back-to-back game. He helped us to win hard in the end. What can I say? He's great. "
+Although Malone praised York so much, he actually loved and hated the talented big man. Of course, Jokic's performance is good enough, but his laziness on the court is a pain to him, so he was questioned. How to make yorkie better, of course, is the most important problem Mike Malone needs to solve. If the Nuggets want to have a stable performance, they must let him take responsibility in the game.
+![Quasi kill! Fatso makes people love and hate to kill emperor and Downes. Who is the first center](9a3b77571d7f4ab88275776480b92f97.jpg)
+Malone and York
+Jokic can be called a big surprise player in the league. When the center players are declining day by day, the appearance of Jokic has become a stream in the league. Jokic has comprehensive technology and is known as the "magician" in position 5. Last season, he has entered the MVP candidate ranks. Jokic led the team into the playoffs for the first time last season, averaging 25.1 points, 13.0 rebounds and 8.4 assists per game. His performance was excellent.
+However, in the new season, Jokic's performance is not as good as that of last season. All the data are declining in an all-round way, and his desire for attack is not enough. The average score dropped to 16.7 points from 20.1 points last season, and the shooting percentage dropped from 51.1% to 44.7%, which made the Nuggets less efficient than last season. For the Nuggets, it's only by activating Jokic's performance on the field that we can solve the current problems.
+![Quasi kill! Fatso makes people love and hate to kill emperor and Downes. Who is the first center](6574ca61ad6b44f88300655f754e4ef6.jpg)
+Yorkie singles down
+In the game against Timberwolves, Jokic only made 9-for-23 shots in the whole game. In the fourth quarter, he was even more invisible - 3-for-0 shots in a single game, with a positive and negative value of - 12. If the Timberwolves do turn around in regular time, there's no doubt that Jokic will be one of the culprits for losing the game, but the extra time goal will eliminate the doubt. Jokic also said after the game: "you never know what will happen. Judging from my shooting tonight, I thought I would throw a three touch, but I hit, so..."
+In the last game, the Nuggets played against the 76ers, and Jokic scored a total of 10 points in the first three quarters. However, in the fourth quarter, Jokic scored 16 points in a single quarter, including the goal that basically locked in the victory. In the two games, he beat enbid and Downes successively, and hit the shots that decide the game at the critical moment. Jokic proved his super strength in front of the league's excellent center.
+But did he really become the first center? It depends on his attitude towards the game.
+(Wen / Yan Wuqiang)

@@ -1,0 +1,29 @@
+
+---
+title: What Zhan Huang wants to see most appears! Will the Lakers change It could have been an accident
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+The Lakers' game against the eagles was doomed from the beginning - Oh, don't mistake pop for scoring at the beginning, it's the eagles' attitude and confidence. After being beaten by the clippers, the eagles were obviously lack of confidence in the face of the Lakers, and the players were in a state of hesitation at the beginning of the game.
+It wasn't until the eagles fell behind a lot and the Lakers showed some slack that the eagles took the chance to recover some points. **But the eagles are not flying Eagles after all, more like a kite caught by the Lakers. The eagles narrowed the difference a little bit and seemed to want to fly out of the control of the Lakers. The Lakers would easily expand the score in a hurry. The eagles were helpless. * *
+In the end, the Lakers won a big win, while the eagles were miserable, losing 70 points in two games in Los Angeles.
+![What Zhan Huang wants to see most appears! Will the Lakers change It could have been an accident](c0affdde7f4248bb801a2a7541e267a3.jpg)
+Kobe Bryant watch the game
+Kobe Bryant watched the game, and staples fans gave their heroes a warm cheer and respect, which to some extent affected the mood of the players on the field. When asked after the game if he would notice Kobe's presence during the game, James joked: * * "I want to give him the best performance so that he can have reason to think: 'we can also have a look at the next good game.'" * *
+James wasn't all joking. He was very relaxed in the game and even showed his long-range shooting ability. **The lead on the field is huge. LeBron James took the lead in the "wave", shooting three-point ball from a long distance outside the three-point line, which is quite similar to the play of the opposite player Trey young. Of course, don't think that James's outside shooting is out of bounds. James made 6 of 10 three-point shots in this game, which is quite hot.
+Of course, it's not just James who has a good outside shot, the Lakers have a good outside feeling in this game, Danny green 6-for-3, Kuzma 6-for-3, and Rajan Rondo 3-for-2. The Lakers shot 15 of 35 three-point shots, a record three-point hit in a single game this season, before the Lakers' opening game against the clippers, the team shot 13 of 33 three-point shots.
+![What Zhan Huang wants to see most appears! Will the Lakers change It could have been an accident](0fa923f947cf41debdfec1b4824a4cb1.jpg)
+Danny Green 
+The reason why the team's outside three-point shooting is particularly mentioned is that the Lakers' three-point shooting ability is too mediocre, and the team's three-point shooting rate is only better than the Suns, ranking the second lowest in the league's three-point shooting rate. On average, the Lakers hit 10.3 three-point shots per game, ranking No. 21 in the league. In the current offensive trend of the league, outside shooting plays an important role, which is also one of the important problems the Lakers have faced since the beginning of the season.
+James said after the team's loss to the Raptors: "I can accept the early performance of the current season, we use defense as a sign, waiting for the recovery of the attack. There are some excellent three point pitchers in the team. They have got a good mobile conference. All of us are getting a good chance. **It's going to be a special game where we're going to get 15 or 20 three-point shots. * *
+The game against the eagles, James wanted to see things finally appeared, but the Lakers really find the outside shooting feel?
+![What Zhan Huang wants to see most appears! Will the Lakers change It could have been an accident](f9387c64768c48509a9c14febc169880.jpg)
+lebron james 
+What we all know is that there are some chances to play outside at James's side, and hitting these shots is very important for the team's attack. Last season, the Lakers didn't do well in this respect, so they had to deal with Baroque, muscara and others in the middle of the season. However, throughout the season, the Lakers did not perform well beyond the three-point line, which to some extent led to the final result of losing the playoffs.
+When the offseason comes, the Lakers also pay attention to the outside pitchers, which is one of the reasons why Danny green can get a valuable contract. In addition to Danny green, Daniels, Quinn cook and Bradley are all three-point players. However, after the start of the new season, only Danny Green's outside shooting is reasonable, and other people's performance outside the three-point line is not good enough.
+![What Zhan Huang wants to see most appears! Will the Lakers change It could have been an accident](535bd85f2c4c4423bf3260b8e858f369.jpg)
+Popper
+Rajan Rondo and Jared Dudley have less playing time. For the moment, Danny green is the Lakers' top three-point shooter, and LeBron James is under him. James's three-point shooting rate is only 34.2% in the season, but this is due to the result of the game against the eagles. Other players' outside shooting rate is below 34%. Daniels, Caruso, Bradley and pop, etc., all three-point shooting rate is below 30%.
+The Lakers finally played what James wanted to see, but it didn't seem to be true. On the one hand, James's 6 out of 10 shooting has greatly improved the team's data; on the other hand, the Hawks' defense is quite loose, which hardly puts pressure on the Lakers' shooting players. In this case, the improvement of the Lakers' outside shooting is not true, which needs to be observed later.
+Having said so much, I just want to show that there is still a lot of room for improvement in the Lakers' attack. In order to go further in the new season, the outside shooting is the place that the team must improve. Will the team find the outside shooting confidence from the game against the eagles?
+(Wen / Yan Wuqiang)

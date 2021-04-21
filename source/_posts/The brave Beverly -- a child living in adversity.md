@@ -1,0 +1,30 @@
+
+---
+title: The brave Beverly -- a child living in adversity
+date: 2019-12-15 00:00:00
+tags:  NBA
+---
+**The Clippers will not think before the game, they will encounter the intensity of the regular season playoffs game, the Celtic tough let the Clippers feel great pressure. From the beginning of the game, Celtic team has put out a high-intensity physical confrontation, and the clippers with two superstars are extremely uncomfortable in the game. Paul George and Leonard fit for the first time, but under the Celtic team's defense, even if there are all kinds of abilities, it is difficult to carry out. * *
+![The brave Beverly -- a child living in adversity](9a853be385e042a180cdedaf6b3a5bca.jpg)
+The first combination of two stars
+Doug rivers should be familiar with Celtic. Although he has been in charge of the green shirts for many years, his tenacity and iron-blood temperament are something he can't forget. When the Celtics came with the best record in the eastern part of the league, Doug rivers knew what the opponent wanted, and the Celtics were eager to win.
+**And don't forget that Celtic, with the majority of young players, are never afraid of challenges. Aren't clippers twinkling? Isn't the Clippers very dominant? Then try to beat the Clippers. It's not personal speculation. Listen to what smart said before the game. "Tonight's opponent is one of the main reasons why I want to play. I'm a competitor. I want to play." * *
+Celtic and clippers have very different mentality. Clippers are recognized by the League when they are off-season, but Celtic are the team in question. Celtic have been questioned because they have left two important players, Kyrie Owen and Al Horford, and their strength is believed to have declined. However, after the start of the season, Celtic team's performance is very good, against the Clippers game is undoubtedly a great opportunity to test the strength of the team.
+![The brave Beverly -- a child living in adversity](8359e00296394e1d86d5440aa6728a04.jpg)
+Marcus Smart 
+**Celtic's tough defense makes clippers very difficult most of the time. It's like a boy in white with a fan in white is embarrassed in the marketplace. It's impossible to put on a cool and unrestrained energy. The clippers, who were forced into the corner, could only fight back in the second half. At the most critical moment, Patrick Beverly came out in time to deal with the tough.
+In the middle of the final game, kenba Walker hit a three-point goal and the clippers were pulled 10 points apart. **The Clippers called a timeout, and back in the middle of the game, Beverly made a three-point shot and roared across the sky. Of course, this is not all he did. Beverly then put out a strong energy in defense, staring at the opponent with fierce eyes, like a hungry wolf looking at the prey. * *
+**Beverly exposed his tusks. At that moment, he was burning with desire. His hard posture reflected the most terrifying power of the Clippers. This is the familiar Beverly, which the Clippers need to see the most, and the one that makes the opponents hate to fear. This is the value of Beverly's existence. He can accumulate strength in adversity and infect his teammates, so as to improve the team strength to the extreme. * *
+![The brave Beverly -- a child living in adversity](23e0207d970f4dd88cee70719cca2b27.jpg)
+Patrick Beverley 
+**When a tough dialogue reached a narrow valley, neither side had a way back. The brave won when they met on a narrow road, so did Beverly and smart. **In this decisive battle, no one is the loser, only who is braver. Still imagining the beauty of the regular season? Forget it quickly, the regular season play a high-intensity defensive war, two can not retreat from the team exudes the determination to win.
+Beverly hit the three-point ball, he constantly grabbed the rebounds to create opportunities, Harrell scored, Luwei hit the three-point ball, the Clippers completed the anti super. Tatum's Fairy Ball saved Celtic team, cowai Leonard's goal, the game was dragged into overtime. Beverly's role has not diminished. The more important the moment is, the more he can show his energy.
+**As Tang Ju said to the king of Qin a thousand years ago, "did you smell the wrath of cloth clothes?" * *
+In extra time, Beverly still did two things - mad dogs competing for blue cricket and throwing bloodthirsty three-point shots. Although some of his choices are out of date, Beverly has no time to think when he's bleeding the pupils. **Fight on, fight on with energy. Beverly hit the three-point ball again. The Clippers felt the fragrance of fairies coming from the goddess of victory. * *
+![The brave Beverly -- a child living in adversity](2c3e59a0b6d541d2addd8860889355a8.jpg)
+Patrick Beverley 
+**In the last few seconds, the Celtics, who were three points behind, hurled a three-point shot, and Tatum missed kenba walker to get the rebound. Beverly fouled quickly. At that moment, Beverly's face showed a sly smile * *. Beverly was calm enough to fight until the end. Celtic's attack was completely disrupted. He missed the last serve again. The whole game was like a play from the end of the game.
+**Doug rivers talked about Beverly after the game. His eyes were full of appreciation and praise. That's the strength that Beverly brings to everyone in the team. **"We gave him the ball to play because he deserved it," Rivers said. He really won the game by his will power. He rebounded, organized the attack and did well. He's from Chicago. He's a tough kid. He's phenomenal
+That's why the Clippers gave him a three-year, $40 million contract. Beverly was just a player with less than eight points per game last season. He won't decide to play like Paul George and Cowie Leonard, but his influence is no less than that of anyone. His bloodthirsty spirit is awesome. Beverly updated social media after the game, writing: "all praise to God.".
+**It's all over. It seems that it's just beginning. * *
+(Wen / Yan Wuqiang)
